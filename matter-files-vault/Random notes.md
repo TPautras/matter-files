@@ -1,0 +1,2 @@
+- elderly lobby is powerful bcz they vote
+- 

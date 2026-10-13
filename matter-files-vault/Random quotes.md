@@ -1,0 +1,1 @@
+- Sofia A : "In the west [...] where the government is gay"
