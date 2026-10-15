@@ -1,0 +1,4 @@
+- Le BP c'est la discipline avec le moins de marge entre random et pro, mais c'est le plus long a improve un peu
+- C'est important d'avoir des grandes poches dans le BP, pour pouvoir mettre ses mains dedans (pas comme le DLO semi final Sofia WUDC)
+- Il y a une carte des mouvements de main a faire en fonction du pays
+- 
